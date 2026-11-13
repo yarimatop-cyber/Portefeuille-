@@ -22,7 +22,7 @@ Basé au Niger 🇳🇪, ouvert aux missions freelance et collaborations interna
 
 *(à venir — liste de mes projets avec liens)*
 
-## 📫 Me contacter 89118931
+## 📫 Me contacter 
 
 - LinkedIn : [ton lien LinkedIn]
 - Email : yarimatop@gmail.com
